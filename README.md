@@ -1,6 +1,7 @@
   <div align="center">
-	<img src="https://github.com/nyakahara/nyakahara/blob/main/gergegdfhjtykk.png">
+	meow meow meow
+	  
 </div>
   <div align="center">
-	<img src="https://github.com/nyakahara/nyakahara/blob/main/Tumblr_l_1078617887799312%20(3).gif">
+	<img src="https://i.postimg.cc/0Q1wwkgh/rthrthghj.png">
 </div>
