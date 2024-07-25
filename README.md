@@ -1,7 +1,8 @@
   <div align="center">
-	meow meow meow
+	tobi is my spirit animal 
 	  
 </div>
-  <div align="center">
-	<img src="https://i.postimg.cc/0Q1wwkgh/rthrthghj.png">
+
+ <div align="center">
+	<img src="https://github.com/nyakahara/nyakahara/blob/main/1681380gwcwwa21ai.gif">
 </div>
