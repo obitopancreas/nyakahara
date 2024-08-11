@@ -1,11 +1,11 @@
 
   <div align="center">
-	<img src="https://github.com/nyakahara/nyakahara/blob/main/z66a2b335b51fb.gif"> 
+	<img src="https://github.com/nyakahara/nyakahara/blob/main/tumblr_bb7d8888717c5c691e37bbdbf131c001_6da8ed67_640.png"> 
   <div align="center">
-	<img src="https://github.com/nyakahara/nyakahara/blob/main/z66a2b3812b662.gif"> 	  
-</div>
+	<img src="https://github.com/nyakahara/nyakahara/blob/main/rthrthrthgfhrthjj.png"> 
+    <div align="center">
+	<img src="https://github.com/nyakahara/nyakahara/blob/main/tumblr_28840b77a3d9fc132556ab6fc.png"> 
+  <div align="center">
 
- <div align="center">
-	<img src="https://github.com/nyakahara/nyakahara/blob/main/1681380gwcwwa21ai.gif">
 
 
